@@ -1,6 +1,6 @@
 
 <p align="center"> doofus  ☆  he / any , bisexual   
-<p align="center"> <img width="200" src="https://img1.picmix.com/output/stamp/normal/2/3/7/3/2653732_7b2d1.gif">
+<p align="center"> <img width="300" src="https://img1.picmix.com/output/stamp/normal/2/3/7/3/2653732_7b2d1.gif">
 <p align="center"> 4 more abt me, check out my strwpage :-)
   
 >
