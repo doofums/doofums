@@ -1,5 +1,5 @@
 
-<p align="center"> doofus  ☆  he / any , bisexual   
+<p align="center"> doofus  ☆  he / any ,    <img width="15" src="https://files.catbox.moe/l756ot.png"><img width="15" src="https://files.catbox.moe/u3jk5c.png">
 <p align="center"> <img width="300" src="https://img1.picmix.com/output/stamp/normal/2/3/7/3/2653732_7b2d1.gif">
 <p align="center"> 4 more abt me, check out my strwpage :-)
   
